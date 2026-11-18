@@ -6,6 +6,16 @@ I work at [**AntsData**](https://antsdata.com/?source=Q9RASl) — building web s
 
 ---
 
+<p align="center">
+  <a href="https://antsdata.com/en/blogs/black-friday-2026-50-percent-extra-usage-on-your-first-top-up/?source=Q9RASl">
+    <img
+      src="https://static.antsdata.com/content/2026/11/01M7MBYX0JZ95D7ERXR3T7YSZ6-black_en.jpg"
+      alt="AntsData Black Friday 2026 - Get 50% Extra Usage on Your First Top-up"
+      width="100%"
+    />
+  </a>
+</p>
+
 ### 🎉 Black Friday 2026 — Get 50% Extra Usage
 
 We're celebrating Black Friday with an exclusive offer for AntsData users!
